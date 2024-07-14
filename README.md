@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Bathula Arjun,
+- 🌱 I’m director of Cultivateu Studios Pvt Ltd.
+- 📚 Studying as a Btech CSE honors through Innovation student in KL University.
